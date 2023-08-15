@@ -1,1 +1,0 @@
-# RRCOURSE-DAY2
